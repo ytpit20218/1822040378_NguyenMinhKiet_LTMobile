@@ -1,1 +1,0 @@
-# 1822040378_NguyenMinhKiet_LTMobile
